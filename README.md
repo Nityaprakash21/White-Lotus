@@ -1,2 +1,2 @@
-# White-Lotus
-White Lotus : Your Gateway to Serenity 
+# White Lotus
+White Lotus - Your Gateway to Serenity 
